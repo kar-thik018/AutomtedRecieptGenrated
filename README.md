@@ -1,0 +1,2 @@
+# AutomtedRecieptGenrated
+uhg[oirhb[
